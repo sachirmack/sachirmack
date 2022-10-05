@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @sachirmack
 - 💼 I’m an entrepreneur, finance professional, online trader, web designer
 - 🌱 I’m currently learning the Japanese and Korean languages
-- 💖 I love graphic design, photography, travel, nature tripping, shopping, music, anime
+- 💖 I love graphic design, digital art, photography, travel, nature tripping, shopping, music, anime
 - 📫 My socials: Twitter @sachirmack | Instagram @nippontrader
 
 <!---
